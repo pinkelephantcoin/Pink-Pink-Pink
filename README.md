@@ -1,0 +1,2 @@
+# Pink-Pink-Pink
+$PELP Presale is Soon - Pink Elephant - BSC Token Pink Elephant  DeFi is a decentralized exchange platform providing a real trustful and transparent investment opportunity in the decentralized finance world.   Pink Elephant Platform  $PELP is a 3rd generation reflectionary. For each transaction, 5% distributed to holders, the 5% auto Lp. Thus, Pink Elephant has the ability to reflect tokens instantly with no burning. The total supply  1,000,000,000,000,000 tokens.   We will burn %50 at start.  *We will renounce it as soon as it's live on pancakeswap!*
